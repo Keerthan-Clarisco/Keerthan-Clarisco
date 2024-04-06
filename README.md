@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing except everything
 - 🌱 I’m currently learning Ninja techniques
 - 💞️ I’m looking to collaborate on Mangalyan Mission
-- 📫 How to reach me ...
+- 📫 How to reach me .. Via Github
 - 😄 Pronouns: ... They/Them
 - ⚡ Fun fact: ... I'm vengance
 
